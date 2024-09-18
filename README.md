@@ -8,7 +8,7 @@
  ๋࣭ ⋆｡˚ w2i, c+h friendly ˚｡⋆.' 
 </p>
 <p align="center">
- -☾- prob tabbed; sorry if i don't get back to you, it's not on purpose!! -☾-
+ -☾- prob tabbed/afk; sorry if i don't get back to you, it's not on purpose!! -☾-
 </p>
 <p align="center">
   ๋࣭ ⋆｡˚ 23 y/o goth girl in healthcare just tryna make it by. ˚｡⋆.'
