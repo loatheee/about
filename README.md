@@ -1,14 +1,16 @@
 <p align="center">
-  ![tumblr_50ac582dcbeb99e71c7f069b22bf69a8_12b9eb39_500](https://github.com/user-attachments/assets/87dc2858-84ee-4dc7-ba4e-cefc0d87aa0c)
-</p>  
-
-  ![tumblr_9a44f074216d9decb8b560971034d2df_460168af_500](https://github.com/user-attachments/assets/90b8860f-aa09-46ac-8888-94ba3031c2d9)
-  
+  <img src="https://64.media.tumblr.com/50ac582dcbeb99e71c7f069b22bf69a8/e2f9a80a93a420ee-08/s500x750/12b9eb3918423dd992cb5b0f9c49794d6b6b6c10.pnj" />
+</p> 
+<p align="center">
+  <img src="https://64.media.tumblr.com/9a44f074216d9decb8b560971034d2df/e2f9a80a93a420ee-53/s500x750/460168af4d0a73e3d63435d61fbaa3298b9991fc.pnj" />
+</p>
 <p align="center">
   23 y/o goth girl in healthcare just tryna make it by.
 </p>
-
-  ![tumblr_50ac582dcbeb99e71c7f069b22bf69a8_12b9eb39_500](https://github.com/user-attachments/assets/87dc2858-84ee-4dc7-ba4e-cefc0d87aa0c)
-  ![tumblr_9a44f074216d9decb8b560971034d2df_460168af_500](https://github.com/user-attachments/assets/90b8860f-aa09-46ac-8888-94ba3031c2d9)
-</c>
+<p align="center">
+  <img src="https://64.media.tumblr.com/9a44f074216d9decb8b560971034d2df/e2f9a80a93a420ee-53/s500x750/460168af4d0a73e3d63435d61fbaa3298b9991fc.pnj" />
+</p>
+<p align="center">
+  <img src="https://64.media.tumblr.com/50ac582dcbeb99e71c7f069b22bf69a8/e2f9a80a93a420ee-08/s500x750/12b9eb3918423dd992cb5b0f9c49794d6b6b6c10.pnj" />
+</p>
 </p>
